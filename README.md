@@ -24,6 +24,6 @@
 
 * LINK9 [KLIK-DISANA](https://www.jrtekno.com/OjuNgRTXU)
 
-* LINK10 [KLIK-DISANA](https://www.jrtekno.com/Cs9ENzp8uU7A)
+* LINK10 [KLIK-DISANA](https://semawur.com/st/?api=dc7af9156664e9532f5d7346beb8f907e35bde60&url=destinationlink.com)
 
 
