@@ -5,8 +5,12 @@
 * TETAP PUTUS ASA
 * KAMU BEBAN KELUARGA
 
-* CANDA BREE 
-* LINK1 [KLIK-DISANA](https://www.jrtekno.com/oa5yJ)
+* CANDA BREE
+
+Rdp google cloud
+
+
+* google [KLIK-DISANA]](https://shell.cloud.google.com/?hl=en_US&fromcloudshell=true&show=ide%2Cterminal)
 
 * LINK2 [KLIK-DISANA](https://www.jrtekno.com/VcgaRb)
 
