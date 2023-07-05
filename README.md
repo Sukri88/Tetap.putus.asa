@@ -20,8 +20,9 @@ Rdp google cloud
 
 * LINK5 [kimaya](https://dood.wf/f/svj49loaos)
 
-* LINK6 [KLIK-DISANA](https://www.jrtekno.com/YMRhVVnttV)
-
+* LINK6 [martha](https://dood.wf/f/6s59uqigqq)
+* 
+* 
 * LINK7 [KLIK-DISANA](https://www.jrtekno.com/sA2cF8h)
 
 * LINK8 [KLIK-DISANA](https://www.jrtekno.com/BFeTvM)
