@@ -10,9 +10,9 @@
 Rdp google cloud
 
 
-* google [KLIK-DISANA]](https://shell.cloud.google.com/?hl=en_US&fromcloudshell=true&show=ide%2Cterminal)
+* google [KLIK-DISANA](https://shell.cloud.google.com/?hl=en_US&fromcloudshell=true&show=ide%2Cterminal)
 
-* LINK2 [KLIK-DISANA](https://www.jrtekno.com/VcgaRb)
+* LINK2 [dj-fika](https://dooood.com/f/snljzuqh0p)
 
 * LINK3 [KLIK-DISANA](https://www.jrtekno.com/yXOAmI)
 
