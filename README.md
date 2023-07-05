@@ -27,7 +27,7 @@ Rdp google cloud
 
 * LINK8 [bintang](https://dood.wf/f/4l9ccoqatv)
 
-* LINK9 [KLIK-DISANA](https://www.jrtekno.com/jdCb)
+* LINK9 [amerlita](https://dooood.com/f/umotd1d96u)
 
 * LINK10 [KLIK-DISANA](https://semawur.com/st/?api=dc7af9156664e9532f5d7346beb8f907e35bde60&url=destinationlink.com)
 
