@@ -25,7 +25,7 @@ Rdp google cloud
 * 
 * LINK7 [meiaka](https://dood.wf/f/6s59uqigqq)
 
-* LINK8 [KLIK-DISANA](https://www.jrtekno.com/BFeTvM)
+* LINK8 [bintang](https://dood.wf/f/4l9ccoqatv)
 
 * LINK9 [KLIK-DISANA](https://www.jrtekno.com/jdCb)
 
