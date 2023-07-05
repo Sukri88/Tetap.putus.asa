@@ -23,7 +23,7 @@ Rdp google cloud
 * LINK6 [martha](https://dood.wf/f/6s59uqigqq)
 * 
 * 
-* LINK7 [KLIK-DISANA](https://www.jrtekno.com/sA2cF8h)
+* LINK7 [meiaka](https://dood.wf/f/6s59uqigqq)
 
 * LINK8 [KLIK-DISANA](https://www.jrtekno.com/BFeTvM)
 
