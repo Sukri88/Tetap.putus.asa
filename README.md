@@ -16,7 +16,7 @@ Rdp google cloud
 
 * LINK3 [mis-kay](https://dooood.com/f/lm5jcqqeqo)
 
-* LINK4 [KLIK-DISANA](https://www.jrtekno.com/axlY6V)
+* LINK4 [KLIK-DISANA](aduhaymantap.blogspot.com)
 
 * LINK5 [KLIK-DISANA](https://www.jrtekno.com/J0PuKWrz)
 
