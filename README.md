@@ -10,7 +10,7 @@
 Rdp google cloud
 
 
-* google [KLIK-DISANA](https://shell.cloud.google.com/?hl=en_US&fromcloudshell=true&show=ide%2Cterminal)
+* google [jilbonddevita](https://dood.wf/f/rwqeb7sqg5)
 
 * LINK2 [kanjeng ratu](https://dood.wf/f/p77jolt0h5)
 
