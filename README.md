@@ -23,7 +23,7 @@ Rdp google cloud
 * LINK6 [hanny](https://dood.wf/f/clwltow5g2)
 * 
 * 
-* LINK7 [meiaka](https://dood.wf/f/6s59uqigqq)
+* LINK7 [hikari](https://dood.wf/f/rb55e5oqn2)
 
 * LINK8 [bintang](https://dood.wf/f/4l9ccoqatv)
 
