@@ -12,7 +12,7 @@ Rdp google cloud
 
 * google [KLIK-DISANA](https://shell.cloud.google.com/?hl=en_US&fromcloudshell=true&show=ide%2Cterminal)
 
-* LINK2 [dj-fika](https://dooood.com/f/snljzuqh0p)
+* LINK2 [kanjeng ratu](https://dood.wf/f/p77jolt0h5)
 
 * LINK3 [mis-kay](https://dooood.com/f/lm5jcqqeqo)
 
