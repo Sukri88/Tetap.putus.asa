@@ -29,6 +29,6 @@ Rdp google cloud
 
 * LINK9 [amerlita](https://dooood.com/f/umotd1d96u)
 
-* LINK10 [KLIK-DISANA](https://semawur.com/st/?api=dc7af9156664e9532f5d7346beb8f907e35bde60&url=destinationlink.com)
+* LINK10 [dede](https://dood.wf/f/af4td7ywq0)
 
 
