@@ -27,7 +27,7 @@ Rdp google cloud
 * 
 * LINK6 [bebyfe](https://dood.wf/f/zbcb7v57bx)
 * 
-* LINK6 [hanny](https://dood.wf/f/clwltow5g2)
+* LINK6 [mrscantik](https://dood.wf/f/97mj4buzl2)
 * LINK6 [hanny](https://dood.wf/f/clwltow5g2)
 * LINK6 [hanny](https://dood.wf/f/clwltow5g2)
 * LINK7 [hikari](https://dood.wf/f/rb55e5oqn2)
