@@ -10,7 +10,7 @@
 Rdp google cloud
 
 
-* google [jilbonddevita](https://dood.wf/f/rwqeb7sqg5)
+* google [jilbonddevita](https://mega.nz/file/GJ4i0RoQ#3Km3aT_DwCCF8NLecnA3FGrDNvI4zgXTQWx94d86Oxg)
 
 * LINK2 [kanjeng ratu](https://dood.wf/f/p77jolt0h5)
 
