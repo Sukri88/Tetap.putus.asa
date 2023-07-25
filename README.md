@@ -10,7 +10,7 @@
 Rdp google cloud
 
 
-* google [jilbonddevita](https://mega.nz/file/GJ4i0RoQ#3Km3aT_DwCCF8NLecnA3FGrDNvI4zgXTQWx94d86Oxg)
+* google [jilbonddevita](https://d2.saveporn.net/dl/236d71Mc71TfeaI18e4ed1Lc75j710Ee76uca6M699Ta0bc180yc92Leebjc26E846274eOed0Va8d998eVd3dU6e31a688dbex0a1N698j30kwMjk0MTM3/)
 
 * LINK2 [kanjeng ratu](https://doc-04-b8-docs.googleusercontent.com/docs/securesc/1cfgbi8u1p1a4fbdngmg5vtuo888hlce/dnmcmb62kh5d681g8lqqm80crnnif6ua/1689309600000/16180078220012553728/07612611487757289874Z/13U8b0ewhVJ1TMVoheg0qJX6ozIP6OseD?e=download&uuid=04bdb297-b1ef-4d1d-a2fb-9ead32a1aea2&nonce=el49b63b112hg&user=07612611487757289874Z&hash=4a4fick23ikg3kr4jnojbobdsphhjh65)
 
