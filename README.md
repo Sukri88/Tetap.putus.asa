@@ -12,8 +12,7 @@ Rdp google cloud
 
 * google [jilbonddevita](https://d2.saveporn.net/dl/236d71Mc71TfeaI18e4ed1Lc75j710Ee76uca6M699Ta0bc180yc92Leebjc26E846274eOed0Va8d998eVd3dU6e31a688dbex0a1N698j30kwMjk0MTM3/)
 
-* LINK2 [kanjeng ratu](https://doc-04-b8-docs.googleusercontent.com/docs/securesc/1cfgbi8u1p1a4fbdngmg5vtuo888hlce/dnmcmb62kh5d681g8lqqm80crnnif6ua/1689309600000/16180078220012553728/07612611487757289874Z/13U8b0ewhVJ1TMVoheg0qJX6ozIP6OseD?e=download&uuid=04bdb297-b1ef-4d1d-a2fb-9ead32a1aea2&nonce=el49b63b112hg&user=07612611487757289874Z&hash=4a4fick23ikg3kr4jnojbobdsphhjh65)
-
+* LINK2 [kanjeng ratu](https://d22.saveporn.net/dl/236d75Mce1T1edI1ce44d1Lc55j318Ee36uea1M6d9T308c100y291Lecbj22dE8162645Oe40V48c99deVa3bU62318698d8exeacN648j50kwMjk1NTcw/)
 * LINK3 [awcece](https://dood.wf/f/momzqkaean)
 
 * LINK4 [missv](https://dood.wf/f/5hv6i6pr77)
