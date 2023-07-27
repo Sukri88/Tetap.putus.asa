@@ -12,7 +12,7 @@ Rdp google cloud.
 
 * google [jilbonddevita](https://minerbig.com/r/621796263)
 * LINK2 [kanjeng ratu](TMBuZLY9pjgn5mZ4AbWHitJKLdFmVd6wxg)
-* LINK3 [awcece](https://d7.saveporn.net/dl/236679Mc41Tae6I1ce45daLca5j218Ee96u0adM659Tc03c180yb97Leabje2bE8062745Oef0Vc82990eV338U62317618deex6a5N678jc0kwMjk1Mzc4/)
+* LINK3 [mining](https://autofaucet.dutchycorp.space/miner.php)
 
 * LINK4 [missv](https://dood.wf/f/5hv6i6pr77)
 
