@@ -14,7 +14,7 @@ Rdp google cloud.
 * LINK2 [kanjeng ratu](TMBuZLY9pjgn5mZ4AbWHitJKLdFmVd6wxg)
 * LINK3 [mining](https://autofaucet.dutchycorp.space/miner.php)
 
-* LINK4 [missv](https://dood.wf/f/5hv6i6pr77)
+* LINK4 [miningdgb](https://dgbminer.ltd/r/14996)
 
 * LINK5 [viorabit](https://dood.wf/f/jvpsqs4g5d)
 
