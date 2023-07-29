@@ -16,7 +16,7 @@ Rdp google cloud.
 
 * LINK4 [miningdgb](https://dgbminer.ltd/r/14996)
 
-* LINK5 [viorabit](https://dood.wf/f/jvpsqs4g5d)
+* LINK5 [googledrive](https://www.techspot.com/downloads/downloadnowfile/5358/?evp=9a27d4d382cf749878ff5786322ddd60&file=10037)
 
 * LINK6 [trxminingpro](https://www.mining-trx.pro/r/56076)
 
