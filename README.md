@@ -21,7 +21,7 @@ Rdp google cloud.
 * LINK6 [trxminingpro](https://www.mining-trx.pro/r/56076)
 
 * 
-* LINK6 [sonia](https://dood.wf/f/2bprzvpq9x)
+* LINK6 [claim free coin](https://claimfreecoins.io/tron-faucet/?r=TMtzPCGyFkQ1WDs7G8gKCrWWagPPeivEJZ)
 * 
 * LINK6 [bebyfe](https://dood.wf/f/zbcb7v57bx)
 * 
