@@ -10,7 +10,7 @@
 Rdp google cloud.
 
 
-* google [jilbonddevita](https://prafd67.9xbud.com/down/YToyOntzOjY6ImhlYWRlciI7czozOToiUmVmZXJlcjogaHR0cHM6Ly9kb29kLnl0L2Uvczg4MmxtcmdsdDZxIjtzOjM6InVybCI7czoxNjE6Imh0dHBzOi8vZWQxOTh1eS5kb29kLnZpZGVvL3U1a2oyaWY0cXhlZW81d2hlNXd0b295Ymlvc2Z3NGdmczV3a21vdmNzZGpvbnJvcHp0b3ljMnRrcnN6cS8zdGVnZ3p4cHRlfnRJbVR4WUV5ck8_dG9rZW49eWwyN2Z2czIzczg2NmoxM2NmeTRiNm4wJmV4cGlyeT0xNjkwOTI0NjY0OTMwIjt9/62136e6469dfc22748d67c5509134077-1690939114?customName=s882lmrglt6q_Original)
+* google [jilbonddevita](https://cuty.io/FbKMIA)
 * LINK2 [kanjeng ratu](TMBuZLY9pjgn5mZ4AbWHitJKLdFmVd6wxg)
 * LINK3 [mining](https://autofaucet.dutchycorp.space/miner.php)
 
